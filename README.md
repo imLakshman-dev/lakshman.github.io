@@ -2,7 +2,7 @@
 
 📞 469-443-8112  
 📧 lakshman.m@techjobmail.com  
-🌐 [LinkedIn](#) • [GitHub](#)  
+🌐 [LinkedIn](www.linkedin.com/in/lakshmandeveloper)
 
 ## 🧠 Summary
 
